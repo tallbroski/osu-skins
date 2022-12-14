@@ -20,3 +20,9 @@ unfinished
 
 # [rho+aesthetic](https://b.catgirlsare.sexy/-7ri5M8k.osk)
 ![](https://media.discordapp.net/attachments/724486935137091636/1045511382805790830/screenshot229.jpg?width=1663&height=935)
+
+
+***
+
+# [Cxu skin without the WEEB](https://tallbroski.s-ul.eu/mXtFBiXy)
+![](https://cdn.discordapp.com/attachments/1052006692440772630/1052437300992282644/screenshot131.jpg)
