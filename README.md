@@ -24,5 +24,5 @@ unfinished
 
 ***
 
-# [Cxu skin without the WEEB](https://tallbroski.s-ul.eu/mXtFBiXy)
+# [Cxu skin without the WEEB](https://tallbroski.s-ul.eu/SZuyvq6W)
 ![](https://cdn.discordapp.com/attachments/1052006692440772630/1052437300992282644/screenshot131.jpg)
