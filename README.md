@@ -3,6 +3,11 @@ unfinished
 
 ***
 
+# [why-so-serea's-skin-edit-v.2](https://tallbroski.s-ul.eu/Ru0js5yj)
+![](https://media.discordapp.net/attachments/1052006692440772630/1055866446061772810/screenshot135.jpg)
+
+***
+
 # [TALLBROSKI-serea-edit](https://tallbroski.s-ul.eu/iaG1DGuu)
 ![](https://cdn.discordapp.com/attachments/724486935137091636/1035763292372746270/screenshot206.jpg)
 
